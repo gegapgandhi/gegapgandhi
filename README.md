@@ -1,5 +1,5 @@
-### Hi there 👋
-gegapgandhi is here
+### Hi there, gegapgandhi is here 👋
+
 
 - 🔭 I’m currently studying on Universitas Gadjah Mada
 - 🌱 I’m currently learning geophysics, caving, and kayaking
